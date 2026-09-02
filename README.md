@@ -112,7 +112,7 @@ I am eager to continue developing my technical skills, contribute to a security 
 
 ## 📫 Let's Connect
 
-* LinkedIn: Add your LinkedIn profile here
+* LinkedIn: * LinkedIn: [Connect with me on LinkedIn](https://www.linkedin.com/in/marisa-f-almeida-a75261433/)
 * GitHub: You are here! 😊
 
 ---
